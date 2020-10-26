@@ -82,22 +82,32 @@ https://www.buzzfeed.com/br/luizougui/teste-mistura-personagens-community-grande
 
 * 🧓 [Quão Marilda você é?](https://www.buzzfeed.com/br/saadmatheus/teste-quao-marilda-voce-e)
 
+
 * :tv: [Qual nome de novela define sua vida amorosa?](https://www.buzzfeed.com/br/saadmatheus/teste-nome-novela-define-vida-amorosa)
+
 
 * :virgo: [Você conseguiria morar com um virgininano?](https://www.buzzfeed.com/br/saadmatheus/teste-voce-conseguiria-morar-signo-virgem)
 
+
 * :princess: [Decore um apartamento e diremos qual princesa da Disney você é](https://www.buzzfeed.com/br/anjalipatel/decore-um-apartamento-e-diremos-qual-princesa-da-disney#.igw5ONxYLW)
+
 
 * :full_moon_with_face: [Que fase da Lua é você?](https://www.buzzfeed.com/br/luizougui/teste-fases-da-lua-personalidade)
 
 
 * 🙆‍♀️ [Você é mais Pabllo Vittar ou Pablo do arrocha?](https://www.buzzfeed.com/br/raphaelevangelista/voce-e-mais-pabllo-vittar-ou-pablo-do-arrocha)
 
+
 *  💼 [Planeje uma festa e te diremos qual seria seu emprego dos sonhos](https://www.buzzfeed.com/br/michelleno/teste-planeje-uma-festa-emprego-dos-sonhos)
+
 
 * :innocent: [Qual o seu alinhamento moral?](https://www.buzzfeed.com/br/awesomer/qual-seu-alinhamento-moral)
 
+
 * :raised_eyebrow: [Quão polêmico é você?](https://www.buzzfeed.com/br/gabrielsukita/quao-polemico-e-voce-comida)
+
+
+* 🐭 [Qual roedor de chinelinho é você?](https://www.buzzfeed.com/br/priscilamendes/teste-qual-roedor-de-chinelinho-e-voce)
 
 
 ## Você consegue acertar?
